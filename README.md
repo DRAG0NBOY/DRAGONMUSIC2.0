@@ -26,4 +26,4 @@
 #### Copy Pasters You Can Copy This But Must Give Credits ...
 
 ### Owner Of This Repository
-[![DRAGONBOY]()](https://t.me/ITS_DRAGON_BOY)
+[![DRAGONBOY]()](https://t.me/ITS_DRAGON_BOY)(https://telegra.ph/file/a5b02a26b5ff969a2bdf3.png) 
