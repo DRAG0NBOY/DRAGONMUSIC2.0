@@ -26,4 +26,4 @@
 #### Copy Pasters You Can Copy This But Must Give Credits ...
 
 ### Owner Of This Repository
-[![DRAGONBOY]()](https://t.me/AdityaHalder)
+[![DRAGONBOY]()](https://t.me/ITS_DRAGON_BOY)
