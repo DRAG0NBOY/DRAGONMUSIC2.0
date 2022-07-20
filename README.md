@@ -26,4 +26,4 @@
 #### Copy Pasters You Can Copy This But Must Give Credits ...
 
 ### Owner Of This Repository
-[![DRAGONBOY]()](https://te.legra.ph/file/8f9d2a593854d0c736201.png)](https://t.me/AdityaHalder)
+[![DRAGONBOY](https://telegra.ph/file/a5b02a26b5ff969a2bdf3.png)](https://t.me/ITS_DRAGON_BOY)
